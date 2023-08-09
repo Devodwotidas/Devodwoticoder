@@ -1,2 +1,2 @@
 # Devodwoticoder
-to become computer science enginner and self coder and also android app developer.
+to become Computer Science Enginner and Self Coder and also Frontend developer.
